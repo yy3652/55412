@@ -23,4 +23,4 @@
 
 如果你正在寻找一个稳定、更新快、无需注册的日本成人视频免费观看平台，欢迎将本站加入书签，每日访问，第一时间获取最热门的作品与女优动态，畅享高质量的观影体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/yy3652/55412 ）</span>
